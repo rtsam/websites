@@ -7,4 +7,3 @@ https://www.referralcanada.ca
 
 https://www.referralcodes.net
 
-https://www.referralcodes.me
